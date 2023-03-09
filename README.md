@@ -1,5 +1,5 @@
-## [`luvel` mural](https://webmural.com/luvel)
+## [`ziji` mural](https://webmural.com/ziji)
 
 ### [`s9a`](https://github.com/s9a) × [`p9e`](https://github.com/p9e)
 
-### [electro<br>compassion](https://webmural.com/compassion)
+### [luvel magic](https://webmural.com/luvel)
